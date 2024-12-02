@@ -1,0 +1,1 @@
+In this repo I will plan and document my plan on growing my X account to market myself, make new connections and land new clients.
